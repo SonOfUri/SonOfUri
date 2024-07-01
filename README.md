@@ -11,7 +11,7 @@
 
 - 🤝 I’m looking for help with **interesting things**
 
-- 👨‍💻 All of my projects are available below [👇](👇)
+- 👨‍💻 All of my projects are available below 👇
 
 - 💬 Ask me about **interesting things**
 
