@@ -13,8 +13,6 @@
 
 - 👨‍💻 All of my projects are available below [👇](👇)
 
-- 📝 I regularly write articles on [interesting things](interesting things)
-
 - 💬 Ask me about **interesting things**
 
 - 📫 How to reach me **https://linktr.ee/sonofuri**
